@@ -25,7 +25,7 @@ Be a listener
 
 Be a reader
 
-Be a good wife
+
 
 
  
